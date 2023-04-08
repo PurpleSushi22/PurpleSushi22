@@ -1,6 +1,6 @@
 - 👋 Hi, I’m PurpleSushi22
-- 👀 I’m interested in **yes**.
-- 🌱 I’m currently learning JS, but I like C#. 
+- 👀 I’m interested in FhcBOWhfu3h8HVioN3f0IUJSfjb0
+- 🌱 I’m currently learning JHbC(h2C2hFi2hf0U
 - 💞️ I’m looking to collaborate on my Mindustry mod. 
 - 📫 How to reach me:
 - Reddit: PurpleSushi22
